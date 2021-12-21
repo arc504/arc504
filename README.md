@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Thejus Manoj
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on coding stuff
+- 📫 How to reach me ~ mail
